@@ -2,7 +2,7 @@
 
 ✍️ I'm Business Adminastration student at Dogus Unıversity<br/>
 🎨 UI/UX Designer<br/>
-💻 I create Instagram posts and Website interface design<br/>
+💻 I create Instagram posts and mobile interface design<br/>
 📸 I take photos and save on the [Instagram](https://www.instagram.com/skyvamoments/)
 
 
